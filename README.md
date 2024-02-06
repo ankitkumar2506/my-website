@@ -1,0 +1,3 @@
+this website is not completed, this is only for windows.
+this website not open properly in mobile phone, android, or apple's.
+I'll fix it after sometime's....
